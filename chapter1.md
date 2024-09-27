@@ -36,7 +36,7 @@ After both had sat down, Takeshi continued:
 
 David replied:
 
-“You're the one who called me. Shouldn't I be asking that question?”
+“You're the one who called me. Shouldn’t I be asking that question?”
 
 Takashi smiled slightly.
 
@@ -54,9 +54,15 @@ They both exited and walked toward the door at the end of the corridor.
 
 Takashi opened the door, and they entered. Inside, a man with tattered clothes lay on the ground. The man in black who greeted David upon his arrival entered and lifted the man. David recognized his face—it was Derek Lawson, his father's killer.
 
+Takeshi drew a knife from his belt, handed it to David, and said:
+
+"Take this knife and avenge your father. Let your soul be reborn."
+
+David took the knife and stepped closer to the man.
+
 David approached the man, kneeling down to look into his eyes. He stood back up, handed the knife back to Takeshi, and said:
 
-“I have never killed anyone before. Even though this man killed my father, he is not the real killer. Taking a life won’t bring mine back to my soul.”
+“This miserable pawn has no value. Killing him won’t bring life to my soul.”
 
 Takeshi took the knife from David and handed it to the masked man. Without hesitation, the masked man took the knife and plunged it into the killer’s heart. Derek Lawson gasped, his eyes widening for a brief moment before his body slumped lifelessly to the floor.
 
