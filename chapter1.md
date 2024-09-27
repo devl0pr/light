@@ -1,4 +1,4 @@
-![Book Cover](images/cover.webp)
+![Book Cover](cover.webp)
 
 Chapter 1: David Hunter
 
