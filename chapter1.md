@@ -1,3 +1,5 @@
+![Book Cover](images/cover.webp)
+
 Chapter 1: David Hunter
 
 David's father, Thomas Hunter, was a prosecutor. Just a few days after sentencing the Italian mafia boss Emanuel Gonzales to 25 years in prison, he was killed in front of the courthouse after work. Thomas’s wife had passed away years earlier, leaving him with only a son.
